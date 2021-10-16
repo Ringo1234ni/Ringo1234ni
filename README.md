@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ringo1234ni
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning more stuff
+- 💞️ I’m looking to collaborate on things
+- 📫 How to reach me dont
